@@ -1,1 +1,1 @@
-<Wallpapers only>
+Wallpapers only
