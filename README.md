@@ -1,1 +1,1 @@
-Will upload all the wallpapers here. 
+<Wallpapers only>
